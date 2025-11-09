@@ -30,7 +30,7 @@ I believe that **sharing knowledge helps everyone grow**, so most of my reposito
 If you're a recruiter, cybersecurity professional, or just someone who loves tech — feel free to connect!  
 I’m always open to discussing **security projects, learning paths, or career opportunities**.
 
-📫 **Email:** leonard.mike2001@gmail.com  
+
 🌐 **LinkedIn:** [https://www.linkedin.com/in/mike-leonard-909a18263/](https://www.linkedin.com/in/mike-leonard-909a18263/)  
 
 ---
